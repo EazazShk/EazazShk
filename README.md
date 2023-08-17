@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **eazazs051@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1P5FxGcW7W63DUw6iViDsz5yzdXuBeNol/view?usp=drive_link](https://drive.google.com/file/d/1P5FxGcW7W63DUw6iViDsz5yzdXuBeNol/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/12Ty9Fz-buP9pbAqB4UjWOBbeZGtOe78P/view?usp=drive_link](https://drive.google.com/file/d/12Ty9Fz-buP9pbAqB4UjWOBbeZGtOe78P/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
